@@ -1,5 +1,5 @@
 - 🕊️ Hi, I’m @yves-sss
-- 💼 I’m currently a student in my 2nd year of IBDP
+- 💼 I’m currently a 1st year at University 
 - 🦢 Dsc: yves_sss
 - 💗 Pronouns: she/her
 - 🎀 Spoken Languages: Polish, English, French, German
